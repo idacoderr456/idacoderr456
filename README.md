@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating games and vbs scripts
 - 🌱 I’m currently learning gamedesign
 - 💞️ I’m looking to collaborate on coder
-- 📫 How to reach me ...
+- 📫 How to reach me type beluga on online chat [my program]
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i created a chat to talk with strangers download now plsw
 
